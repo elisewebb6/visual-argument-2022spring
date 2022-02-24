@@ -1,3 +1,7 @@
+Adventurous Eye
+
+For my visual argument project I wanted to collect a lot of my own photogrpahs and use them in a creative way. I decided to collage the photos from many of the places I have traveled to and use them to construct the iris of the eye. I wanted to show the world from my perspetive and encourage others to do the same.
+
 # Project 2: Visual Argument / Rhetorical Collage
 
 Your task in this unit is to **make a rhetorical claim through the juxtaposition of images and text.** It's kind of a collage, but a collage with an argument to make. In assigning this, I have two main goals for you: (1) to learn how to ethically obtain images and edit them using digital tools, and (2) to explore the affordances of still images as a medium, and especially their ability to _direct attention_ and _help make ideas memorable_.
